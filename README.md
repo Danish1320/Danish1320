@@ -15,8 +15,6 @@
 
 - 📫 How to reach me **danishfarooqui2018@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1SeUEgAKkVQvNf_sUNza3Pbw4tKfTMwkg/view?usp=sharing](https://drive.google.com/file/d/1SeUEgAKkVQvNf_sUNza3Pbw4tKfTMwkg/view?usp=sharing)
-
 - ⚡ Fun fact **I spend so much time on learning new things thus I fear there is no rest for me.**
 
 <h3 align="left">Connect with me:</h3>
